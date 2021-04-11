@@ -1,1 +1,0 @@
-# arturpilaszkiewicz.github.io
